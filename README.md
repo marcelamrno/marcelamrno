@@ -3,8 +3,6 @@
 
 - 🌱 Aprendendo linguagens de programação/learning programming in general
 - 📫 marcelamorenobr@gmail.com
-- 💁‍♀️ he/she , ela /dela 
-- 🏳️‍🌈 Simpatizante da diversidade/ diversity sympathizer
 - 👩‍🎓 Estudante de Tecnologia e sistemas da informação/information Technology
 - 💡 Interesses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
 - 🇧🇷 🇫🇷 🇬🇧
