@@ -6,8 +6,6 @@
 - 👩‍🎓 Estudante de Tecnologia e sistemas da informação/information Technology
 - 💡 Interesses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
 - 🇧🇷 🇫🇷 🇬🇧
-
-
 div> 
   <a href="https://instagram.com/marcelamrno" target="_blank"><img src="https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
  <a href="https://discord.gg/marcelamm#2320" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> 
