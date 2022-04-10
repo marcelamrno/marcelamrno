@@ -1,4 +1,4 @@
-# HI! i am Marcela Moreno 
+# HI! I am Marcela Moreno 
 # Oiii! eu sou Marcela Moreno 
 
 - 🌱 Aprendendo linguagens de programação/learning programming in general
