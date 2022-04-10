@@ -6,7 +6,7 @@
 - 💁‍♀️ he/she , ela /dela 
 - 🏳️‍🌈 Simpatizante da diversidade/ diversity sympathizer
 - 👩‍🎓 Estudante de Tecnologia e sistemas da informação/information Technology
-- 💡 Interreses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
+- 💡 Interesses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
 - 🇧🇷 🇫🇷 🇬🇧
 
 
