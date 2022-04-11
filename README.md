@@ -5,7 +5,7 @@
 - 📫 marcelamorenobr@gmail.com
 - 👩‍🎓 Estudante de Tecnologia e sistemas da informação/information Technology
 - 💡 Interesses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
-
+- 😶‍🌫️ Curiosa e entusiasta /curious and enthusiastic  🚀 🎨 
 
 </div>
 
