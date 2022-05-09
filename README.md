@@ -1,12 +1,12 @@
 # HI! I am Marcela Moreno 
 # Oiii! eu sou Marcela Moreno 
 
-- 🌱 Siga sempre suas vontades , erre , ame e experimente ! 
+- 🌱 Todos os dias é dia de aprender e reaprender 
 - 📫 marcelamorenobr@gmail.com
 - 👩‍🎓 Estudante de Tecnologia e  segurança da informação/student of systems and information Security
 - 💡 Interesses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
--
- 
+- ♀️ she/her + 🏳️‍🌈 sympathizer
+- HobbiesandLoves 🛰️ 🚀 space 🪐 🎨 art 🎧 👾 wine 🍷
 
 </div>
 
