@@ -6,7 +6,7 @@
 - 👩‍🎓 Estudante de Tecnologia e  segurança da informação/student of systems and information Security
 - 💡 Interesses em Ciência da computação , cybersegurança e jogos/ computer science , cybersecurity and dev games
 - ♀️ she/her + 🏳️‍🌈 sympathizer
-- HobbiesandLoves 🛰️ 🚀 space 🪐 🎨 art 🎧 👾 wine 🍷
+- HobbiesandLoves 🛰️ 🚀 space 🪐 🎨 art 
 
 </div>
 
