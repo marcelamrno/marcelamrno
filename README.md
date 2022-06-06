@@ -7,7 +7,7 @@
 - 💡 Interesses em Ciência da computação , cybersegurança e programação  / interests computer science , cybersecurity and programming
 - ♀️ she/her + 🏳️‍🌈 sympathizer
 
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=https://github.com/Marcelamorenobr/marcelamorenobr/edit/main/README.md)](https://github.com/anuraghazra/github-readme-stats)
+
 
 </div>
 
