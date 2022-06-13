@@ -6,7 +6,7 @@
 - 👩‍🎓 Estudante de Tecnologia e  segurança da informação/student of systems and information Security
 - 💡 Interesses em Ciência da computação , cybersegurança e programação  / interests computer science , cybersecurity and programming
 - ♀️ she/her + 🏳️‍🌈 sympathizer
-
+- 🪡  🇧🇷 🇫🇷 🇬🇧 
 
 
 </div>
