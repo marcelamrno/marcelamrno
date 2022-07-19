@@ -3,10 +3,9 @@
 
 - 🌱 Todos os dias é dia de aprender e reaprender 
 - 📫 marcelamorenobr@gmail.com
-- 👩‍🎓 Estudante de Tecnologia e  segurança da informação/student of systems and information Security
+- 👩‍🎓 Estudante de Tecnologia 
 - 💡 Interesses em Ciência da computação , cybersegurança e programação  / interests computer science , cybersecurity and programming
-- ♀️ she/her + 🏳️‍🌈 sympathizer
-- 🪡  🇧🇷 🇫🇷 🇬🇧 
+- ♀️ she/her 
 
 
 </div>
