@@ -1,6 +1,6 @@
 # HI!
 
-
+!![image](https://media1.giphy.com/media/fFEFxS3DE5VIY/giphy.gif?cid=ecf05e47081ulhw5t1byz2de4dfxvbag46m135t0oj7sh7ki&rid=giphy.gif&ct=s)
 
 
 </div>
@@ -14,7 +14,7 @@
  
   
  
-  !![image](https://user-images.githubusercontent.com/96259068/216789600-38a619d1-6d45-4c9e-8ae8-8025f9b96468.png)
+  !![image](https://media4.giphy.com/media/ZdCHb2JwBAg88FBluT/200w.webp?cid=ecf05e472r4piatnrppcn2ga51m5y0d45humffmf7higxdew&rid=200w.webp&ct=ts)
 [)
 
  </div>
