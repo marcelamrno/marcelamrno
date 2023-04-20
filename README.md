@@ -1,12 +1,11 @@
 # HI!
 
 
-![image](https://media3.giphy.com/media/SB6RDfoYh4X7T9wDip/200w.webp?cid=ecf05e478mir9l5gseibd3ygqp7xcympu8wbkubuh7k92hg1&rid=200w.webp&ct=ts)
 
 
 
 
-![image](https://media3.giphy.com/media/nIUN14gx8gPJB3qslB/200w.webp?cid=ecf05e47ki2uzt1qy6g1w6alz2u9o94qd5ju8hmd1sqwfs0c&rid=200w.webp&ct=s)
+![image](https://user-images.githubusercontent.com/96259068/233236345-ae2eacd5-820b-4000-8bd4-05c376eb34e8.png)
 
 
 </div>
